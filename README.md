@@ -1,4 +1,4 @@
 Hi my name is Renuka.
 
-i like blueg
+i like blue
 i like running
